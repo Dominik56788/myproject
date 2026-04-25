@@ -1,1 +1,7 @@
 # Myproject
+ZMIANAgit
+rgesgdsrgdfsgdfs
+gsdfgsd
+gfsdgsgfdsf
+fgsdgsdg
+gfsdgsgfdsf
